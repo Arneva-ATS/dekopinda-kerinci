@@ -1,1 +1,1 @@
-# dekopinda-kerinci
+# dekopinda-karanganyar
